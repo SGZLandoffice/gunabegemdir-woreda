@@ -1,0 +1,2 @@
+# gunabegemdir-woreda
+ parcel location
